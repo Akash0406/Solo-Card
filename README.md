@@ -1,3 +1,3 @@
 # Solo-Card
 
-https://starx0406.github.io/Solo-Card/
+https://Akash0406.github.io/Solo-Card/
